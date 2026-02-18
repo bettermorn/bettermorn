@@ -21,5 +21,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about  industrial software, data analysis, aritificial intelligence, data products
 - 📫 How to reach me: bilibili chat
-- 😄 Pronouns: ...
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: comedy play
